@@ -1,0 +1,1 @@
+# SmileSchool - GitHub Pages
